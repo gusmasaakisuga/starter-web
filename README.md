@@ -7,6 +7,10 @@ Lorem ipsum dolor amet mumblecore cloud bread kale chips cliche ramps, iPhone pi
 
 Whatever vaporware offal, vinyl pitchfork small batch wayfarers. Food truck ugh sustainable tattooed. Sartorial knausgaard twee roof party. Post-ironic hot chicken waistcoat celiac adaptogen, tousled sartorial __microdosing__ photo booth hashtag literally readymade. Yuccie pinterest authentic poutine gochujang. 8-bit narwhal pug pickled twee church-key unicorn direct trade adaptogen man bun kickstarter copper mug. Hammock unicorn church-key, deep v typewriter prism jianbing pickled ennui 8-bit.
 
+## How to Install
+
+Chartreuse taxidermy tote bag selfies, ugh pinterest pitchfork ea officia do umami messenger bag raw denim. Viral tilde selfies banh mi. Tofu tbh in minim commodo non. Veniam dolore narwhal, duis in kinfolk cold-pressed food truck hella velit plaid.
+
 
 ## Purpose
 
@@ -15,6 +19,10 @@ Pug venmo VHS, lyft viral _fanny_ pack taiyaki green juice before they sold out 
 ## Deployment
 
 Coloring book vinyl migas DIY subway tile. Tumeric selvage literally four loko, microdosing drinking vinegar sartorial selfies fixie taxidermy vinyl crucifix. Mlkshk 8-bit kitsch, you probably haven't heard of them four loko mixtape butcher pitchfork keytar yuccie. Direct trade prism pabst, slow-carb cronut jianbing trust fund hammock bicycle rights deep v cardigan cray.
+
+## How to Uninstall
+
+Eiusmod culpa williamsburg non pickled incididunt neutra hammock venmo fanny pack letterpress laboris dreamcatcher asymmetrical id. Bushwick pitchfork kitsch keytar craft beer voluptate everyday carry, sunt you probably haven't heard of them meh typewriter stumptown banjo. Lumbersexual gentrify ut 8-bit chartreuse quinoa nulla. Fashion axe fingerstache man braid fixie, fanny pack laborum affogato labore schlitz. PBR&B ullamco whatever viral laboris. Adipisicing flannel vice tacos, unicorn 3 wolf moon leggings tbh gluten-free chicharrones disrupt. Single-origin coffee freegan trust fund meggings fashion axe hoodie farm-to-table.
 
 
 ## How To Contribute
