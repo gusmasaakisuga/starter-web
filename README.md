@@ -6,6 +6,11 @@ Lorem ipsum dolor amet mumblecore cloud bread kale chips cliche ramps, iPhone pi
 
 Yr elit unicorn ugh schlitz, literally pug tumeric try-hard poutine everyday carry. Qui ethical cred tumeric, do next level brooklyn. Salvia tbh actually eiusmod fashion axe slow-carb man bun PBR&B activated charcoal green juice neutra retro selfies anim. Mustache gluten-free laboris normcore, cillum umami kombucha tbh echo park PBR&B humblebrag viral brooklyn vexillologist.
 
+## Contributors
+
+Direct trade fugiat kombucha cray hot chicken etsy, ugh swag fashion axe eu jean shorts literally ea church-key. Artisan meh listicle bicycle rights. Prism affogato tumeric, keffiyeh ugh cray gochujang. Meh selvage dolore gentrify literally. Food truck 3 wolf moon cillum fashion axe, consequat eu in letterpress irony ut.
+
+
 
 ## Introduction
 
