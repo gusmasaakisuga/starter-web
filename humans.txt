@@ -4,6 +4,7 @@
 # TEAM
 
     <name> -- <role> -- <twitter>
+    Masaaki Suga    Admin   @msuga
 
 # THANKS
 
