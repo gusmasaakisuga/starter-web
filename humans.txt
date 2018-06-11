@@ -8,7 +8,8 @@
 
 # THANKS
 
-    Thanks for all my students (editied by myfeature branch)
+    Thanks for all my students (editied by myfeature branch, second time)
+
 
 # TECHNOLOGY COLOPHON
 
